@@ -1,2 +1,0 @@
-# io
-Portafolio De Starseventh 
